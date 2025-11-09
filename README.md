@@ -4,7 +4,8 @@ the first one that actually laid eyes on this was a lil kid, a year younger than
 
 the second, were some friends!  
 
-and now you guys are my third audience  
+and now, you guys are my third audience  
+
 the reason i held back from publishing this so long was because:
 1. the whole CS1010S file ecosystem is so complicated to upload
 2. i don't wish plagiarism upon anyone and to do so requires a lot of cleanup so only my OWN answers get published here
