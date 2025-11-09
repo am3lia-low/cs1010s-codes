@@ -1,6 +1,7 @@
 # cs1010s codes
 oKAY story time!  
 the first one that actually laid eyes on this was a lil kid, a year younger than me who i still hold a grudge to but forcefully attempt to forgive. (like when ur laptop still has apps running in the back but u shut it down anyway.)  
+
 the second, were some friends!  
 
 and now you guys are my third audience  
